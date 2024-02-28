@@ -1,1 +1,1 @@
-![Resume](https://github.com/kilaniBarhoom/Resume/assets/112987450/e2ef6e67-da2b-4b23-b4d3-53e04bd417f0)
+![Resume](https://github.com/kilaniBarhoom/Resume/assets/112987450/e8539db2-3556-4887-864a-39041043543c)
